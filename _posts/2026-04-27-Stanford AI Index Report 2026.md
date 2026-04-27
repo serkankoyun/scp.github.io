@@ -1,4 +1,4 @@
-(https://hai.stanford.edu/assets/files/ai_index_report_2026.pdf
+https://hai.stanford.edu/assets/files/ai_index_report_2026.pdf
 
 # Stanford HAI – AI Index Report 2026: Önemli Noktaların Özeti
 
